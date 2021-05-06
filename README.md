@@ -26,8 +26,10 @@ The logos checked in were done by a Professional Organization for fees. We plann
 
 Ramkumar likes the scene when Ringo and Yalanda try to steal in a restaurant and get caught by Samuel Jackson who is a mafia man smuggling gold for his boss and quoting scripture just because he feels less guilty. He hands over 1500$ to Ringo. Ringo and Yalanda live. Ringo and Yalanda are Ramkumars ideal. 
 
+Youtube clip : https://www.youtube.com/watch?v=mvy4YH9--Vw
+
 **For the Americans**
 
 Yes. Ramkumar has dined in Anchor Bar, Buffalo. Yummy. 
 
-Youtube clip : https://www.youtube.com/watch?v=mvy4YH9--Vw
+
