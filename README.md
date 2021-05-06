@@ -32,4 +32,9 @@ Youtube clip : https://www.youtube.com/watch?v=mvy4YH9--Vw
 
 Yes. Ramkumar has dined in Anchor Bar, Buffalo. Yummy. 
 
+**Screenshots for those who do not like to open or install**
+
+![Opening Screen](https://github.com/spacetracker-collab/GastroJunkie/blob/main/Screenshot_20210507-003915.jpg)
+![Compare Tables](https://github.com/spacetracker-collab/GastroJunkie/blob/main/Screenshot_20210507-003922.jpg)
+![Table Comparison](https://github.com/spacetracker-collab/GastroJunkie/blob/main/Screenshot_20210507-003928.jpg)
 
