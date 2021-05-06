@@ -20,10 +20,14 @@ AIA is a format supported by App Inventor. It is just a ZIP file. It can be open
 
 **Logos**
 
-The logos checked in were done by a Professional Organization for fees. We planned to make night light laser keychains with the same if we had the budget. 
+The logos checked in were done by a Professional Organization for fees. We planned to make night light laser keychains with GJ logos if we had the budget for all the car and bike owners who frequent restaurants.  
 
 **Aside**
 
-Ramkumar likes the scene when Ringo and Yalanda try to steal in a restaurant and get caught by Samuel Jackson who is a mafia man smuggling gold for his boss and quoting scripture just because he feels less guilty. He hands over 1500$ to Ringo. Ringo and Yalanda live. Ringo and Yalanda are Ramkumars ideal.
+Ramkumar likes the scene when Ringo and Yalanda try to steal in a restaurant and get caught by Samuel Jackson who is a mafia man smuggling gold for his boss and quoting scripture just because he feels less guilty. He hands over 1500$ to Ringo. Ringo and Yalanda live. Ringo and Yalanda are Ramkumars ideal. 
+
+**For the Americans**
+
+Yes. Ramkumar has dined in Anchor Bar, Buffalo. Yummy. 
 
 Youtube clip : https://www.youtube.com/watch?v=mvy4YH9--Vw
